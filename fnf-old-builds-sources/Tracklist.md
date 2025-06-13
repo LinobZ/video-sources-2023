@@ -1,0 +1,20 @@
+# Old Builds Tracklist (In Order)
+- Wavedash.ppt - Celeste OST
+- Sansational - Indie Cross OST
+- Main Menu Theme - Funkin' Aside OST
+- Redline - FNF SchoolGrounds OST
+- Creme De La Creme - FNAF 6 OST
+- Serene (Main Menu) - FNF B-Side Redux OST
+- Roadkill - FNF Online Vs OST
+- Study Hall (Menu Theme) - FNF SchoolGrounds OST
+- Cozmik - FNF 7quid OST
+- Thank You For Your Patience - FNAF 6 OST
+- Delusion - FNF Vs Impostor V4 OST
+- Never Forgive Me, Never Forget Me - Silent Hill 3 OST
+- Title Screen - FNAF 6 OST
+- Prey - FNF Sonic.exe OST
+- Options Menu - Canceled FNF: Tails Gets Trolled OST
+- Roses - Friday Night Funkin OST
+- Overdrive - Hotline 024 OST
+- Sugracrush - Hotline 024 OST
+- Distant Chuckle Teaser - FNF Vs Tricky OST
